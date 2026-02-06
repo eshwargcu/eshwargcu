@@ -1,5 +1,8 @@
-HEY! This Eshwar N...
-i am currently working on projects<br>i am currently pursuing Engineering <br>I am looking to collaborate with company<br>
+**HEY! This is  Eshwar N...**
+
+i am currently working on projects<br>
+i am currently pursuing Engineering <br>
+I am looking to collaborate with company<br>
 
 
 ## 🌐 Socials:
